@@ -7,9 +7,9 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 📫 How to reach me **kumkumupreti2@gmail.com**
+- 📫 **How to reach me** **kumkumupreti2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing](https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing)
+- 📝 **Know about my experiences** [https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing](https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a Vlogger**
 
