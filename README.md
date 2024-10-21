@@ -29,4 +29,3 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=kumkumupreti&show_icons=true&locale=en" alt="kumkumupreti" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=kumkumupreti&" alt="kumkumupreti" /></p>
-![snake gif](https://github.com/kumkumupreti/kumkumupreti/blob/output/github-snake-dark.svg)
