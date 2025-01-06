@@ -9,7 +9,7 @@
 
 - 📫 **How to reach me** **kumkumupreti2@gmail.com**
 
-- 📝 **Know about my experiences** [https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing](https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing)
+- 📝 **Know about my experiences** [My Resume]([https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing](https://drive.google.com/file/d/1BYbHj8NXWk9uAuAaARmTVfwkr3TPfS2e/view?usp=drive_link))
 
 - ⚡ Fun fact **I'm a Vlogger**
 
