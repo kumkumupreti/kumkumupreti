@@ -9,8 +9,8 @@
 
 - 📫 **How to reach me** **kumkumupreti2@gmail.com**
 
-- 📝 **Know about my experiences** [My Resume]([https://drive.google.com/file/d/1wFPuIWqpWJUJRKUEF0UvqOcHyoquNujM/view?usp=sharing](https://drive.google.com/file/d/1BYbHj8NXWk9uAuAaARmTVfwkr3TPfS2e/view?usp=drive_link))
-
+- 📝 **Know about my experiences** [My Resume](https://drive.google.com/file/d/1BYbHj8NXWk9uAuAaARmTVfwkr3TPfS2e/view)
+  
 - ⚡ Fun fact **I'm a Vlogger**
 
 <h3 align="left">Connect with me:</h3>
